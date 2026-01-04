@@ -2,6 +2,7 @@
 here is a List of fandoms I'm in !!11!!1!
 also this readme is still wip so it will be changed in the future 
 ## Main fandoms
+click da names i dare yuo
 
 <details> <summary><b>Hetalia</b></summary>
  <p align="center"><img src="https://media1.tenor.com/m/t_QEYUlKT_0AAAAC/hetalia-aph.gif" height="120px"></img><br>✦ - ○ - ✦<br> one of my first fandom i got onto! I don't interact with it as active as I used to but you can still interact with me if ur a hetalian:D
@@ -26,21 +27,42 @@ also this readme is still wip so it will be changed in the future
 </details>
 
 <details><summary><b>RANFREN</b></summary>
-<p align="center"><img src="https://media.tenor.com/YvQrddPNzxgAAAAi/ranfren-randal.gif" height="120px"></img><br> i genuinelyreally like this stupid comic seriesbut i still don'tknow if liking it makes me problematic or not im scared to tellpeople i like this comic (○○` )<br> Favs: satoru Tsukada, randal ivory</p>
+<p align="center"><img src="https://media.tenor.com/YvQrddPNzxgAAAAi/ranfren-randal.gif" height="120px"></img><br> ✦ - ○ - ✦<br>i genuinelyreally like this stupid comic seriesbut i still don'tknow if liking it makes me problematic or not im scared to tellpeople i like this comic (○○` )<br> Favs: satoru Tsukada, randal ivory</p>
 </details>
 
 <details><summary><b>Cells at work</b></summary>
-<p align="center"><img src="https://media1.tenor.com/m/vOkLOp9zrbgAAAAC/tired-anime.gif" height="120px"></img><br> gng i like cells at work but the fandom is maybea littlebit too freaky💔💔💔<br> Favs:U-1146, AC1677, memory cell</p>
+<p align="center"><img src="https://media1.tenor.com/m/vOkLOp9zrbgAAAAC/tired-anime.gif" height="120px"></img><br> ✦ - ○ - ✦<br>gng i like cells at work but the fandom is maybea littlebit too freaky💔💔💔<br> Favs:U-1146, AC1677, memory cell</p>
 </details>
 
 <details><summary><b>Pjsk</b></summary>
-<p align="center"><img src="https://media1.tenor.com/m/rrGi4cs3A5UAAAAd/kamishiro-rui.gif" height="120px"></img><br>Yes<br> favs: tsukasa, entirety of vbs </p>
+<p align="center"><img src="https://media1.tenor.com/m/rrGi4cs3A5UAAAAd/kamishiro-rui.gif" height="120px"></img><br>✦ - ○ - ✦<br>Yes<br> favs: tsukasa, entirety of vbs </p>
 </details>
 
-<details><summary><b>Deltarune</b></summary></details>
+<details><summary><b>Deltarune</b></summary>
+ <p align="center"><img src="https://media.tenor.com/_N6wsyxjLzMAAAAi/dontstopgetitgetit.gif" height="120px"></img><br>✦ - ○ - ✦<br> I dont interact with the peoplehere for the most time but i am still engrossed in it so it counts.... RIGHT????<br> Favs:kris, susie</p>
+</details>
 
-<details><summary><b>TWST</b></summary></details>
+<details><summary><b>FREAK CIRCUS</b></summary>
+<p align="center"><img src="https://media1.tenor.com/m/gHQCXmY98RUAAAAC/tfc-the-freak-circus.gif" height="120px"></img><br>✦ - ○ - ✦<br> I havent int w the fandpm (esp in pt) after day 2 released, but i stil veri liked the game!!1!!1! <br> Favs:the doctor, pierrot </p>
+</details>
 
-<details><summary><b>FREAK CIRCUS</b></summary></details>
+<details><summary><b>TWST</b></summary>
+<p align="center"><img src="https://media1.tenor.com/m/rgTvIpwbNakAAAAC/floyd-leech-twisted-wonderland.gif" height="120px"></img><br>✦ - ○ - ✦<br> i havent played the game for a long time cuz the loop is kinda boring but i still know SOME lore<br> favs: octovinelle, idia, riddle roseheart, malleus</p>
+</details>
 
-<details><summary><b>Bokutachi wa Yonayona</b></summary></details>
+<details><summary><b>Bokutachi wa Yonayona</b></summary>
+<p align="center"><img src="https://media1.tenor.com/m/zWCDkBOw0y0AAAAC/zoshigaya-itsuki-bokuyona.gif" height="120px"></img><br>✦ - ○ - ✦<br> BIGGEST HYPERFIXTATION CURRENTLY OH MYNGOSH, anyways if you like bokuyona be my friend NOW /jk <br> Favs:itsuki, roka, syuan </p>
+</details>
+
+<details><summary><b>Collinlock16</b></summary>
+<p align="center"><img src="https://media1.tenor.com/m/EPC6BTtdu6QAAAAC/collinlock16-oneshef.gif" height="120px"></img><br>✦ - ○ - ✦<br> peak fiction <br> Favs:Andre, Vitriolic red, big kevin </p>
+</details>
+
+## Minor fandoms / no longer in
+
+- Zelda
+- Genshin
+- TADC
+- Murder drones
+- Crk
+- ch/cb
