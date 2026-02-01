@@ -58,6 +58,10 @@ click da names i dare yuo
 <p align="center"><img src="https://media1.tenor.com/m/EPC6BTtdu6QAAAAC/collinlock16-oneshef.gif" height="120px"></img><br>✦ - ○ - ✦<br> peak fiction <br> Favs:Andre, Vitriolic red, big kevin </p>
 </details>
 
+<details><summary><b>Alien stage</b></summary>
+<p align="center"><img src="https://media.tenor.com/yFq7KUVLa6UAAAAi/alnst-till-alien-stage.gif" height="120px"></img><br>✦ - ○ - ✦<br> IM SO LATE TO THE FANDOM 😭😭😭<br> Favs:Till, hyuna </p>
+</details>
+
 ## Minor fandoms / no longer in
 
 - Zelda
