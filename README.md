@@ -62,11 +62,14 @@ click da names i dare yuo
 <p align="center"><img src="https://media.tenor.com/yFq7KUVLa6UAAAAi/alnst-till-alien-stage.gif" height="120px"></img><br>✦ - ○ - ✦<br> IM SO LATE TO THE FANDOM 😭😭😭<br> Favs:Till, hyuna </p>
 </details>
 
+<details><summary><b>CRK</b></summary>
+<p align="center"><img src="https://media.tenor.com/bEL1aW-uVYYAAAAi/venom-dough-cookie-cookie-run-kingdom.gif" height="120px"></img><br>✦ - ○ - ✦<br> I JST CAME BACK AFTER A LONG BREAK AYAYAYYAYA<br> Favs: venom dough cookie, pitaya dragon cookie </p>
+</details>
+
 ## Minor fandoms / no longer in
 
 - Zelda
 - Genshin
 - TADC
 - Murder drones
-- Crk
 - ch/cb
